@@ -1,0 +1,1 @@
+# fnw_equacao-de-valor
